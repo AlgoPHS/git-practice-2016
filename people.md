@@ -5,7 +5,7 @@ Nick
 
 Alex
 --------------------
-
+Hi
 
 
 Martha
@@ -15,12 +15,12 @@ Martha
 
 Justin
 --------------------
-
+AARON BUY ME A SANDWICH
 
 
 Daphne
 --------------------
-
+yo
 
 
 Will
@@ -51,9 +51,9 @@ in your baby mother
 
 Phil
 --------------------
-
+8))
 
 
 Leon
 --------------------
-
+put me at the top nerds
